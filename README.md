@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Junior Web Developer and Graphic Designer
+- 👋 Hi, I’m Freelance Web Developer and Professional Graphic Designer
 - 👀 I’m interested in Web Development and Graphic Design
 - 🌱 I’m currently Working as Graphic Designer and Freelance Web Developer
 
